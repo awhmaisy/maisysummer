@@ -30,3 +30,9 @@ also, although i love paper, i think i will make a new cycle
 - consolidate the date-dependent books.
 - abide by state-dependent books and papers.
 - enjoy it
+
+today i have new questions. i wonder
+- what is the proper way to organize mac files? does adding things to my downloads versus my desktop versus a mysterious and unknown location alter the impact of the file size?
+- what do all of these words in terminal mean
+- why is my computer SO DAMN SLOW
+- how do i fix my computer help
