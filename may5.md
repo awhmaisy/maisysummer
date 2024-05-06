@@ -19,3 +19,14 @@ next, i've got to clean
 </ol>
 
 so yes! it's a day of cleaning, trying to feel clean, and trying to calm my mind. i'm going way fast!
+
+also, although i love paper, i think i will make a new cycle
+
+**gather**
+- read online
+- learn to annotate from a screen
+- wear the damn blue light glasses bro
+- take notes for EVERYTHING in ONE notebook. none of this 'notebook per subject' bullshit
+- consolidate the date-dependent books.
+- abide by state-dependent books and papers.
+- enjoy it
